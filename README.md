@@ -15,4 +15,4 @@
 4. Cover your assets
 
 # Nanny and Papa Videos
-1. [Teejay Videos](https://photos.google.com/share/AF1QipOytERHhYkRRQbl8DgikOmpD3-T4VNdE9z_PyWC7RswmVlLA5Kgy4xB97sOusBkeA)
+1. [Tejay Videos](https://photos.google.com/share/AF1QipOytERHhYkRRQbl8DgikOmpD3-T4VNdE9z_PyWC7RswmVlLA5Kgy4xB97sOusBkeA)
