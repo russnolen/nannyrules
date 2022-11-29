@@ -19,4 +19,4 @@
 8. Slay
 
 # Nanny and Papa Videos
-1. [Tejay Videos](https://photos.google.com/share/AF1QipOytERHhYkRRQbl8DgikOmpD3-T4VNdE9z_PyWC7RswmVlLA5Kgy4xB97sOusBkeA)
+1. [Nanny/Papa Christmas Memory Videos](https://photos.google.com/share/AF1QipOytERHhYkRRQbl8DgikOmpD3-T4VNdE9z_PyWC7RswmVlLA5Kgy4xB97sOusBkeA)
