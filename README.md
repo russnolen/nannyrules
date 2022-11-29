@@ -13,6 +13,10 @@
 2. Kill 10
 3. Golf
 4. Cover your assets
+5. Plague
+6. Stuffed Fables
+7. Spades
+8. Slay
 
 # Nanny and Papa Videos
 1. [Tejay Videos](https://photos.google.com/share/AF1QipOytERHhYkRRQbl8DgikOmpD3-T4VNdE9z_PyWC7RswmVlLA5Kgy4xB97sOusBkeA)
